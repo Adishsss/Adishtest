@@ -1,2 +1,2 @@
 # Adishtest
-  Just a tesing,What are u looking for?
+  Just a tesing,What r u looking for?
